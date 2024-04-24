@@ -1,0 +1,1 @@
+![](https://disk.yandex.ru/i/95_eLBEMKzjp_Q)
